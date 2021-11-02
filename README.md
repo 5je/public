@@ -1,5 +1,1 @@
-**PLEASE STAR THIS PROJECT**
-
-***Song*** - Soul Food · Luci4
-
-![image](https://user-images.githubusercontent.com/80993711/130337473-f4079b1e-6cfc-4a17-8be0-50c2f267f68c.png)
+![standard (6)](https://user-images.githubusercontent.com/88627099/139909287-ced2c968-a2f5-40a8-bce9-5c78048bfa06.gif)
